@@ -5,7 +5,7 @@ HI! I'M A OSDD SYSTEM BUT WE HAVE FAIRLY GOOD COLLECTIVE MEMORY SO IF YOU'VE MET
 <br/>
 <br/>
 > OUR MOST ACTIVE FRONTERS ARE AS FOLLOWS!<br/>
-><br/>
+> <br/>
 > MIRAGE -- SHE / IT / HE / BOT -- 17-19 Y/O <br/>
 >  -- HOST  &&  DE-STRESSOR -- SIGNS OFF WITH //🎀<br/>
 > <br/>
