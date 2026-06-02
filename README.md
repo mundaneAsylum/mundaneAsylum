@@ -1,5 +1,13 @@
 **OUR ACCOUNT IS FINALLY UNRESTRICTED YAYYYYYY!!!!!!!1**<br/>
 <br/>
+<br/>
+<br/>
+<br/>
+Nepeta doesnt really front anymore but i'm too lazt to change any of this shit man, she made like mulitple websites in her theme iont wanna do all that motherfuckin work to go change them<br/>
+<br/>
+<br/>
+<br/>
+<br/>
 HI! I'M A OSDD SYSTEM BUT WE HAVE FAIRLY GOOD COLLECTIVE MEMORY SO IF YOU'VE MET ONE OF US ITS VERY LIKELY THE REST OF US WILL REMEMBER THEIR INTERACTIONS WITH YOU!!!
 <br/> THE PONY WE'RE USING IS TYPICALLY OUR CURRENT FRONTER BUT SOMETIMES ONE OF US MAY USE ANOTHER'S PONY TO HIDE!! THIS IS NORMAL FOR US, PLEASE JUST ASSUME THE ACTIVE PONY IS THE ONE IN FRONT !!!<br/>
 <br/>
