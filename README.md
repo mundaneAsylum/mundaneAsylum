@@ -3,7 +3,7 @@
 <br/>
 <br/>
 <br/>
-Nepeta doesnt really front anymore but i'm too lazt to change any of this shit man, she made like mulitple websites in her theme iont wanna do all that motherfuckin work to go change them<br/>
+Nepeta doesnt really front anymore but i'm too lazy to change any of this shit man, she made like mulitple websites in her theme iont wanna do all that motherfuckin work to go change them<br/>
 <br/>
 <br/>
 <br/>
